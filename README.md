@@ -1,2 +1,2 @@
 
-# I am Dhanwika Nayak ,friend of Kavya K,W/o of Subrahmanya K
+# I am  Kavya K ,friend of  Dhanwika (W/o of Subrahmanya K)
